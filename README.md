@@ -1,2 +1,3 @@
 # hello_world
-at the speed of light 
+Christ is King!
+Love at the speed of light.
